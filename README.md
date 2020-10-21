@@ -1,3 +1,3 @@
 # Puja-k.-Negi
 ##Hello!
-I'm astudent of HSMSS.
+I'm a student of HSMSS.
